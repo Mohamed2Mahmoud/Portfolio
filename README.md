@@ -1,6 +1,6 @@
 # Portfolio
-## day of consecutive sessions and professional speakers giving talks and workshops on how to decide your career path and write a CV or deal with interviews and so on!
-# December 2020
+## Day of consecutive sessions and professional speakers giving talks and workshops on how to decide your career path and write a CV or deal with interviews and so on!
+## December 2020
 ![132297521_429910251534975_7815678644207746309_n](https://github.com/Mohamed2Mahmoud/Portfolio/assets/139232421/45dc79a6-7151-4209-a448-13f54606ae89)
 ![130721200_202182724780228_3337833525326495595_n](https://github.com/Mohamed2Mahmoud/Portfolio/assets/139232421/25482b55-09fa-4d57-b8d8-1709223d14ed)
 ![130816324_237036064668371_9182684343866965524_n](https://github.com/Mohamed2Mahmoud/Portfolio/assets/139232421/c5838705-5995-4a44-bd11-28919f84f5f2)
