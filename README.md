@@ -1,4 +1,8 @@
 # Portfolio
+## Charity work
+## November 2020
+
+![Dur](https://github.com/Mohamed2Mahmoud/Portfolio/assets/139232421/e4d5e4da-fc2d-4b61-8ca7-a77f8c6f1c2f)
 ## Day of consecutive sessions and professional speakers giving talks and workshops on how to decide your career path and write a CV or deal with interviews and so on!
 ## December 2020
 ![130721200_202182724780228_3337833525326495595_n](https://github.com/Mohamed2Mahmoud/Portfolio/assets/139232421/25482b55-09fa-4d57-b8d8-1709223d14ed)
